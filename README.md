@@ -1,3 +1,3 @@
 ## Hi there 👋
 
-<img width="1152" height="512" alt="cb09d4ee36fb3788c750440f9b97cc72" src="https://github.com/user-attachments/assets/fa1a69fe-cd65-457d-832f-4f48bd296459" />
+<img width="2100" height="1560" alt="9847878168735639b59eaea14f39a432" src="https://github.com/user-attachments/assets/54f5c03c-4160-48fc-a14e-9965c4a8c8ec" />
